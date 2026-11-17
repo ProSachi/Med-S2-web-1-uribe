@@ -2,16 +2,12 @@
 
 > **Acceso rápido a la sesión:** Puedes visualizar la grabación completa, a través del siguiente enlace oficial:
 
-### 🔗 Clase 2  03/11/2026
-👉 **[Ver Grabación y Resumen en Microsoft Teams](https://cesdenet-my.sharepoint.com/:v:/g/personal/syosa_cesde_net/IQDmLFUapwVWQZOoxGp9lwxYAf08qpbcGf0-9JB6o5ow-PE?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=f8znjP)**
+### 🔗 Clase 1  12/11/2026
+👉 **[Ver Grabación y Resumen en Microsoft Teams](https://cesdenet-my.sharepoint.com/:v:/g/personal/syosa_cesde_net/IQBJmb2MPo5pToNHEUI9Bf2bAdW6MxVdE3LQ_CVV6ScQfIM?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=Dvf7al)**
 
 ---
-### 🔗 Clase 3  06/11/2026
-👉 **[Ver Grabación y Resumen en Microsoft Teams](https://cesdenet-my.sharepoint.com/:v:/g/personal/syosa_cesde_net/IQD0fZbV8udvSLcX65AYbX5SATWhgzS1_gWx6exa5ETWEOY?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=vFLtd3)**
-
----
-### 🔗 Clase 4  10/11/2026
-👉 **[Ver Grabación y Resumen en Microsoft Teams](https://cesdenet-my.sharepoint.com/:v:/g/personal/syosa_cesde_net/IQCQXqpQApFIQZwnNUvp4XnwATlBZwwLVGH2l9C00uVvCEc?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=oCsOQE)**
+### 🔗 Clase 2  17/11/2026
+👉 **[Ver Grabación y Resumen en Microsoft Teams]( )**
 
 ---
 
