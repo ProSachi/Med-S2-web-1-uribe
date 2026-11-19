@@ -7,7 +7,7 @@
 
 ---
 ### 🔗 Clase 2  17/11/2026
-👉 **[Ver Grabación y Resumen en Microsoft Teams]( )**
+👉 **[Ver Grabación y Resumen en Microsoft Teams](https://cesdenet-my.sharepoint.com/:v:/g/personal/syosa_cesde_net/IQBO2FmKoP98RrKA3_-VmXkoAfgG9f2qrdaJOEKQKvHZ4eQ?nav=eyJyZWZlcnJhbEluZm8iOnsicmVmZXJyYWxBcHAiOiJTdHJlYW1XZWJBcHAiLCJyZWZlcnJhbFZpZXciOiJTaGFyZURpYWxvZy1MaW5rIiwicmVmZXJyYWxBcHBQbGF0Zm9ybSI6IldlYiIsInJlZmVycmFsTW9kZSI6InZpZXcifX0%3D&e=NG7aNM)**
 
 ---
 
